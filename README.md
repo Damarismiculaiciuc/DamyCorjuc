@@ -1,0 +1,2 @@
+# DamyCorjuc
+Portofoliu foto/Motivationale
